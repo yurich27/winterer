@@ -1,3 +1,3 @@
-# Boxing - Exciting
+# yurich27 - winterer
 
-복싱 사이트
+강사 코딩은 모르겠는데 교육은 영 꽝인듯
